@@ -1,4 +1,4 @@
-
+stealth hypershot Script is the best hypershot Script, featuring undetectable and one-hit kill. Safe and powerful for all your needs.
 
 
 
